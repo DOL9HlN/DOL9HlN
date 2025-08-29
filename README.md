@@ -1,4 +1,4 @@
-<p align="center">im a sososhaun #1 fan and dependence artist, i love shaun n dolphin yayyaya<p align="center">
+<p align="center">im a sososhaun #1 fan and dependence duo artist, i love shaun n dolphin yayyaya<p align="center">
 </p>
 
 <p align="center">
