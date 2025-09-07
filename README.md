@@ -1,6 +1,3 @@
-<p align="center">im a sososhaun #1 fan and dependence duo artist, i love shaun n dolphin yayyaya<p align="center">
-</p>
-
 <p align="center">
-<img width="535" height="398" alt="image" src="https://github.com/user-attachments/assets/1d9bcfe8-cb8d-4c30-8910-93ace13f4bef" />
+<img width="370" height="498" alt="image" src="https://github.com/user-attachments/assets/a9ad56e2-7c1b-4e81-98c1-e00c0f6b34f8" />
 </p>
