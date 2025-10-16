@@ -1,6 +1,9 @@
 <p align="center">
-  ily boo oomf for making this, CUTE.
+hi im the real notsodependaily on twitter, dont follow me
 </p>
 <p align="center">
-<img width="682" height="642" alt="image" src="https://github.com/user-attachments/assets/24e5c82b-aeae-4ba5-b7cc-1d04d664cb17" />
+  <img width="593" height="513" alt="image" src="https://github.com/user-attachments/assets/270e9e20-5aac-4cf6-a72c-92927b04d537" />
+</p>
+<p align="center">
+<img width="520" height="513" alt="image" src="https://github.com/user-attachments/assets/d0cf344a-0e73-4477-9c46-0d7c3bcf2755" />
 </p>
